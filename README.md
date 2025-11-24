@@ -1,2 +1,2 @@
 # 2aAtividadeNotaFinal-Eduardo-Brito
-Atividade de nota final da professora Simone Gama.
+Eduardo da Silva Brito - Matrícula: 202502477597
